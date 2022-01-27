@@ -1,4 +1,4 @@
-# Hi! i'm Samei🦈
+# Hi! 'm Samei🦈
 
 ### ⬇︎　Statue　⬇︎
 <p align="left"> 
