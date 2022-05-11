@@ -1,4 +1,4 @@
-# Hi! I'm Kaduki Samei🦈
+# Hi! I'm　Samei🦈
 
 ### ⬇︎　Statue　⬇︎
 <p align="left"> 
